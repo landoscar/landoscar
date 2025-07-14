@@ -1,4 +1,4 @@
-![MAFIOSO](https://github.com/user-attachments/assets/b7a95f14-66ee-4387-9144-1cc1f7bba876)
+<img width="1470" height="590" alt="Untitled17_20250714011206" src="https://github.com/user-attachments/assets/f939daef-08a2-42f3-830e-5ea51f8015af" />
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
