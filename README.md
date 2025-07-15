@@ -5,6 +5,8 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=GOONS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=DEBT&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=ASSORTMENTS&style=for-the-badge)
 
+TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness. STOP SHIPPING US. I AM AROACE.
+
 --------------------------------------------------------------------------------------------------------------------------------
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
