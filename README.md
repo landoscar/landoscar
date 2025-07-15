@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=GOONS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=DEBT&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=ASSORTMENTS&style=for-the-badge)
 
-TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness. STOP SHIPPING US. I AM AROACE.
+TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US. I AM AROACE.
 
 --------------------------------------------------------------------------------------------------------------------------------
 
