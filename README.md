@@ -1,9 +1,9 @@
-<img width="1470" height="590" alt="Untitled17_20250714011206" src="https://github.com/user-attachments/assets/f939daef-08a2-42f3-830e-5ea51f8015af" />
+<img width="1490" height="400" alt="Untitled17_20250721112512" src="https://github.com/user-attachments/assets/3c3291f4-bd8b-4f58-903b-948b5b37c952" />
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=GOONS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=BANS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BANS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=GOONS&style=for-the-badge)
 
 TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US. I AM AROACE.
 
