@@ -11,7 +11,9 @@ TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadn
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
-【 **M**AFIOSO - - DON SONNELLINO 】
+【 **M**AFIOSO - - AZUREWRATH / DON SONNELLINO / 1X1 】
+
+[ **IRL** OF AZUREWRATH AND MAFIOSO + 1X1. I DO NOT LIKE DOUBLES OR SHARING MY IRLS. ]
 
 ----------------------------------------
 
