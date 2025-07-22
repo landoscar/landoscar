@@ -21,7 +21,7 @@ TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadn
 
   HE / THEY PRONOUNS PREFERRED.
 
-> I ship : Frozendebt, Doomtrap, FrozenDoomTentacles, Doomazure, Doomclock.
+> I ship : Frozendebt, Doomtrap, FrozenDoomTentacles, Doomazure. -- I /ONLY/ Ship Rarepairs. I do not ship/rarely ship non-rarepairs as i find comfort in rarepairs.
 
 GENDERFLUID - ✧  - MASCULINE MAINLY.
 
