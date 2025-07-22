@@ -15,7 +15,7 @@ TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadn
 
 > MAFIOSO AND DOOMBRINGER ARE MOST PREFERRED.
 
-[ **IRL** OF AZUREWRATH AND MAFIOSO + DOOMBRINGER. I DO NOT LIKE DOUBLES OR SHARING MY IRLS. ]
+[ undiagnosed system, working with professionals to get a diagnosis as i have had OSDD systems for 5 years now. ]
 
 ----------------------------------------
 
