@@ -31,6 +31,8 @@ GENDERFLUID - ✧  - MASCULINE MAINLY.
 
 DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you.
 
+> Mainly source attached alters, Working on a diagnosis for OSDD with licensed professionals currently.
+
 
 <img width="74" height="74" alt="eizzha" src="https://github.com/user-attachments/assets/110f63c0-11da-4d29-ba1f-177584b2de2a" />
 
