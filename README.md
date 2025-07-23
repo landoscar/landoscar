@@ -11,11 +11,11 @@ TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadn
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
-【 **D**OOMBRINGER - - AZUREWRATH / DON SONNELLINO / MAFIOSO 】
+【 DNI IF YOU ARE GOING TO START SHIT WITH THE MAIN HOST, AZURE. 】
 
 > Bodily A Minor.
 
-> MAFIOSO AND DOOMBRINGER ARE MOST PREFERRED.
+> Names change on whoevers fronting at the time.
 
 [ undiagnosed system, working with professionals to get a diagnosis as i have had OSDD symptoms for 5 years now. ]
 
@@ -36,19 +36,19 @@ DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you
 
 <img width="74" height="74" alt="eizzha" src="https://github.com/user-attachments/assets/110f63c0-11da-4d29-ba1f-177584b2de2a" />
 
-> My mafioso is not 'xactly its. . Source however you want to call it. Do not interact Doublefedora fans. I ship Frozendebt, Not your silly little ' Debt guy ( whos canonically not in debt ) x debt collector. ' Its silly.
+> We are a mainly source attached system, As we found out we are a system 5 months ago. We have two hosts along with two cohosts. As we split those alters from stress, And our main host, Azure, Was frontstuck.
 >
-> I do not bite when interacting, Though feel free to leave an atabook message if still wary of interacting with me. Any messages containing NSFW / Weird messages will be deleted.
+> We do not bite when interacting, Though feel free to leave an atabook message if still wary of interacting with us. Any messages containing NSFW / Weird messages will be deleted.
 >
->  Regiments, Do not harass me. Keep your staff on a leash aswell.
+>  Regiments, Do not harass us. Keep your staff on a leash aswell.
 >
->  I am only free to friend requests if we have talked alot, I do not do ship roleplays unless i know you heavily or i consider you close. No i will not open up to you until we have known eachother for awhile.
+> We are only free to friend requests if we have talked alot, We do not do ship roleplays unless We know you heavily or We consider you close. No We will not open up to you until we have known eachother for awhile.
 >
-> Yes, You may see me around. Just say hi, I do not bite. -- Speaking of this ,, Please do not overly say hi to me everytime. I can get overwhelmed from it.
+> Yes, You may see us around. Just say hi, We do not bite. -- Speaking of this ,, Please do not overly say hi to us everytime. We can get overwhelmed from it.
 >
-> I hide freely, Meaning i can and will hide you if i do not feel safe / uncomfy around you or you have done bad things to me or my friends or people.
+> We hide freely, Meaning We can and will hide you if We do not feel safe / uncomfy around you or you have done bad things to us, our friends or just people in general.
 >
-> My github name currently is just a joke, However i do ship Frozendebt.
+> Yes, We have both an itrapped alter and chance alter. No they do not hate eachother in headspace.
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
