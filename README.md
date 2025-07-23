@@ -13,6 +13,8 @@ TO KEEP THINGS STRAIGHT, I AM NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadn
 
 【 **D**OOMBRINGER - - AZUREWRATH / DON SONNELLINO / MAFIOSO 】
 
+> Bodily A Minor.
+
 > MAFIOSO AND DOOMBRINGER ARE MOST PREFERRED.
 
 [ undiagnosed system, working with professionals to get a diagnosis as i have had OSDD systems for 5 years now. ]
