@@ -1,4 +1,4 @@
-<img width="1490" height="400" alt="Untitled17_20250721112512" src="https://github.com/user-attachments/assets/3c3291f4-bd8b-4f58-903b-948b5b37c952" />
+<img width="1000" height="335" alt="Untitled17_20250724161712" src="https://github.com/user-attachments/assets/60719c57-3983-42cb-ab58-943701d171e2" />
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
