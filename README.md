@@ -27,7 +27,7 @@ AROACE, AND THE OTHER IS DATING ANOTHER HEADMATE.
 
 GENDERFLUID - ✧  - MASCULINE MAINLY.
 
-                        IRL OF MAFIOSO, I DO NOT 'XACTLY LIKE DOUBLES
+                        Our collective name may change depending on new hosts,, As Twotime is one of our new hosts. As Azure was too overwhelmed by being a host after 5 years of being frontstuck.
 
 DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you.
 
