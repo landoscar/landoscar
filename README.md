@@ -30,7 +30,7 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 GENDERFLUID - ✧  - MASCULINE MAINLY.
 
-                        Our collective name may change depending on new hosts,, As 1x4 is one of our new hosts.
+                        Our collective name may change depending on new hosts,, As Elliot/Sora is one of our new hosts.
 
 DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you.
 
