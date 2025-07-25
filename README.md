@@ -14,6 +14,8 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 > Elliot/Sora is our main fronter as of now, Due to personal reasons. Along with TwoTime.
 
+> Yes we change hosts alot, No it does not make us any less of a system then we are. Some of our headmates struggle with being host.
+
 > Bodily A Minor.
 
 > Names change on whoevers fronting at the time.
