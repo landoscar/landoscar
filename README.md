@@ -39,7 +39,7 @@ DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you
 
 <img width="74" height="74" alt="eizzha" src="https://github.com/user-attachments/assets/110f63c0-11da-4d29-ba1f-177584b2de2a" />
 
-> We are a mainly source attached system, As we found out we are a system 5 months ago. We have two hosts along with two cohosts. As we split those alters from stress, And our main host, Azure, Was frontstuck.
+> We are a mainly source attached system, As we found out we are a system 5 months ago. We have two hosts along with two cohosts. As we split those alters from stress, And our former host, Aure, Was frontstuck.
 >
 > We do not bite when interacting, Though feel free to leave an atabook message if still wary of interacting with us. Any messages containing NSFW / Weird messages will be deleted.
 >
