@@ -10,7 +10,7 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
-【 DNI IF YOU ARE GOING TO START SHIT WITH THE MAIN HOST, AZURE. 】
+【 DNI IF YOU ARE GOING TO START SHIT WITH THE MAIN HOST, TWOTIME. 】
 
 > Bodily A Minor.
 
