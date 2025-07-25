@@ -5,8 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BANS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=GOONS&style=for-the-badge)
 
-TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US. ONE OF OUR HOSTS IS 
-AROACE, AND THE OTHER IS DATING ANOTHER HEADMATE.
+TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US
 --------------------------------------------------------------------------------------------------------------------------------
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
@@ -27,7 +26,7 @@ AROACE, AND THE OTHER IS DATING ANOTHER HEADMATE.
 
 GENDERFLUID - ✧  - MASCULINE MAINLY.
 
-                        Our collective name may change depending on new hosts,, As Twotime is one of our new hosts. As Azure was too overwhelmed by being a host after 5 years of being frontstuck.
+                        Our collective name may change depending on new hosts,, As 1x4 is one of our new hosts.
 
 DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you.
 
