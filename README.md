@@ -14,7 +14,7 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 > If you think we harassed someone, We did not. We do not condone harassing, And have been harassed before. Nor do we condone trolling in serious roleplays. We do not powerplay anymore either.
 
-> TwoTime / Siren + Elliot/Sora are our main fronters as of now, Due to personal reasons.
+> TwoTime / Siren + Caporegime + Contractee are our main fronters as of now, Due to personal reasons.
 
 > Yes we change hosts alot, No it does not make us any less of a system then we are. Some of our headmates struggle with being host.
 
