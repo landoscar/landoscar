@@ -10,17 +10,24 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
-【 DNI IF YOU ARE GOING TO START SHIT WITH THE MAIN HOST, TWOTIME. 】
+【 we are masked a bit, not entirely. 】
 
-> If you think we harassed someone, We did not. We do not condone harassing, And have been harassed before. Nor do we condone trolling in serious roleplays. We do not powerplay anymore either.
+> Contractee / Caporegime
+>
+> I ask that you do not spread lies about us about harassment or other things. As i have experienced those things straight up.
+>
+> I am a undiagnosed OSDD System, We are masking for safety due to the drama with [ PROJECT MAD ] Do not harass them, As we do not want more issues.
+>
+> I am a cofounder of Spider Laboratory, And i ask that you do not interact with me if you are blacklisted from : T . L . O . R And SRA.
+>
+> Do not interact with me if you are in a regiment, Or are a regi staff. I do not like the regi community and do not wish to interact with that community due to it being /HORRIBLE/.
+>
+> Fictives are not entirely their source, Do not treat them as if they are. As fictives are not their source entirely.
+>
+> Yes, I am a source attached fictive. Our collective name is 1-800 Collective. Yes 1-800 is a bbno$ song.
+>
+> 
 
-> TwoTime / Siren + Caporegime + Contractee are our main fronters as of now, Due to personal reasons.
-
-> Yes we change hosts alot, No it does not make us any less of a system then we are. Some of our headmates struggle with being host.
-
-> Bodily A Minor.
-
-> Names change on whoevers fronting at the time.
 
 [ undiagnosed system, working with professionals to get a diagnosis as i have had OSDD symptoms for 5 years now. ]
 
@@ -30,30 +37,16 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 > I ship : Frozendebt, Doomtrap, FrozenDoomTentacles, Doomazure. -- I /ONLY/ Ship Rarepairs. I do not ship/rarely ship non-rarepairs as i find comfort in rarepairs.
 
-GENDERFLUID - ✧  - MASCULINE MAINLY.
+GENDERFLUID - ✧  - MASCULINE MAINL
 
-                        Our collective name may change depending on new hosts,, As Caporegime + Contractee are two of our new hosts.
+  I am a masc presenting genderfluid person, I am also VIRSIAN. [ Virsian is attraction to men no matter gender. ] I am also AROACE. No i do not like Itrapped, No i do not feel comfy being shipped out of character.
 
-DNI TO IWC REGIMENTS, I do not 'xactly have. . Good experiences with most of you.
-
-> Mainly source attached alters, Working on a diagnosis for OSDD with licensed professionals currently.
+I am easily stressed and overwhelmed, Please iwecare when inting.
 
 
 <img width="74" height="74" alt="eizzha" src="https://github.com/user-attachments/assets/110f63c0-11da-4d29-ba1f-177584b2de2a" />
 
-> We are a mainly source attached system, As we found out we are a system 5 months ago. We have two hosts along with two cohosts. As we split those alters from stress, And our former host, Aure, Was frontstuck.
->
-> We do not bite when interacting, Though feel free to leave an atabook message if still wary of interacting with us. Any messages containing NSFW / Weird messages will be deleted.
->
->  Regiments, Do not harass us. Keep your staff on a leash aswell.
->
-> We are only free to friend requests if we have talked alot, We do not do ship roleplays unless We know you heavily or We consider you close. No We will not open up to you until we have known eachother for awhile.
->
-> Yes, You may see us around. Just say hi, We do not bite. -- Speaking of this ,, Please do not overly say hi to us everytime. We can get overwhelmed from it.
->
-> We hide freely, Meaning We can and will hide you if We do not feel safe / uncomfy around you or you have done bad things to us, our friends or just people in general.
->
-> Yes, We have both an itrapped alter and chance alter. No they do not hate eachother in headspace.
+> i swear i dont bite.
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
 
