@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=MAFIALINGS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=GOONS&style=for-the-badge)
 
-TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US + CONTRACTEE IS DATING OUR PLAYER HEADMATE IN HEADSPACE.
+TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012maymadness . STOP SHIPPING US + CONTRACTEE IS DATING OUR HATRED HEADMATE IN HEADSPACE.
 --------------------------------------------------------------------------------------------------------------------------------
 
 <img width="1281" height="174" alt="kg15vc" src="https://github.com/user-attachments/assets/aa2b1fe3-daac-4878-971e-048c44f90bfd" />
