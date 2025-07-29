@@ -12,7 +12,7 @@ TO KEEP THINGS STRAIGHT, WE ARE NOT IN A RELATIONSHIP WHATSOEVER WITH @2012mayma
 
 【 we are masked a bit, not entirely. 】
 
-> Contractee / Garshapoon + Selozar.
+> Contractee / Player + Selozar or Whoevers fronting.
 >
 > I ask that you do not spread lies about us about harassment or other things. As i have experienced those things straight up.
 >
