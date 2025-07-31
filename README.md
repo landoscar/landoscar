@@ -43,6 +43,11 @@ we are not dating @2012maymadness , we are not wanting a relationship right now 
 >
 > Thank ya for readin this ! If you see us on ponytown feel free to say hi ! We are mainly C + H For friends, Unless its a social headmates then its everyone.
 
+-------------------------------------------------------------------------------
+
+Ships I Personally Ship : 1xAzure, FrozenDebt, DoomTrap, 1xDoe + Others.
+
+Ships I do /NOT/ Ship. : AdminVirus, DoubleFedora, Coolkidd x Anyone, Other problematic ships.
 
  <img width="1280" height="204" alt="257ffd49f507df6c6233bf2e03db35011a08b3fc" src="https://github.com/user-attachments/assets/7162854b-379c-4b28-88cd-4404bae0917e" />
 
