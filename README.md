@@ -1,5 +1,4 @@
-<img width="900" height="614" alt="Untitled27_20250730002306" src="https://github.com/user-attachments/assets/39f5ff3b-3fcf-4512-a85e-689fe3f7766b" />
-
+<img width="1200" height="900" alt="Untitled27_20250730233440" src="https://github.com/user-attachments/assets/eafa456b-75f8-424d-b128-7b34dcca218f" />
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
@@ -14,7 +13,9 @@ we are not dating @2012maymadness , we are not wanting a relationship right now 
 
 【 we are masked a bit, not entirely. 】
 
-> Hello. I am Telamon, Or well. Whatever you want to call me, Though i am mainly [ TELAMON ] As i am apart of the Admin HeadQuarters System. Do not interact with me if you actively think we are fakeclaiming because we are different from other systems, Or that we are mainly new media alters. I promise you we aren't.
+> Hello. I am 1x1x1x1, Or well. Whatever you want to call me, Though i am mainly [ 1X4. ] As i am apart of the Admin HeadQuarters System. Do not interact with me if you actively think we are fakeclaiming because we are different from other systems, Or that we are mainly new media alters. I promise you we aren't.
+>
+> Yes, I am sourced from two sources. Do not treat me directly like my source as fictives are /NOT/ Their source. Treat them like actual people.
 >
 > We are formerly the 1-800 Collective, But we had changed our collective name to be a more comfortable one to bare, As we did not like 1-800 That much. We are still masked a bit over ponytown, However some of our headmates like to put " SYS " In our names to let people know that we are a SYSTEM.
 >
