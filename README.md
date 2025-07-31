@@ -17,9 +17,11 @@ we are not dating @2012maymadness , we are not wanting a relationship right now 
 >
 > Yes, I am sourced from two sources. Do not treat me directly like my source as fictives are /NOT/ Their source. Treat them like actual people.
 >
+> Medically Recognized OSDD System, Waiting on Diagnosis.
+>
 > We are formerly the 1-800 Collective, But we had changed our collective name to be a more comfortable one to bare, As we did not like 1-800 That much. We are still masked a bit over ponytown, However some of our headmates like to put " SYS " In our names to let people know that we are a SYSTEM.
 >
-> We do not feel comfortable being shipped out of character with anyone, As i am aroace. Along with the fact Player is dating someone in headspace along with Contractee. We are all collectively masc presenting Genderfluid people besides our Jane Doe headmate.
+> We do not feel comfortable being shipped out of character with anyone, As i am aroace. Along with the fact our hosts are aroace. We are all collectively masc presenting Genderfluid people besides our Jane Doe headmate.
 >
 > We accept [ CROWN ] Whispers from people we do not recognize, However we accept whispers from very close friends who most of us recognize and are collectively friends with -- Shoutout to Angeli and Itrapped + SpiderLabs. We find you guys very cool.
 >
