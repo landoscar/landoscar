@@ -23,7 +23,8 @@ we are not dating @2012maymadness , we are not wanting a relationship right now 
 > We accept [ CROWN ] Whispers from people we do not recognize, However we accept whispers from very close friends who most of us recognize and are collectively friends with -- Shoutout to Angeli and Itrapped + SpiderLabs. We find you guys very cool.
 >
 > We do not have our atabook on our github links anymore due to more personal reasons. We ask that you just whisper us any questions you may have about us and not how our system works. We act differently from other systems. We are still valid however.
->
+> 
+> Yes, We are mainly a new media source system. We do not choose WHO we split, And we mainly communicate through Simply Plural as i cannot communicate in headspace easily. If you fakeclaim us for being a new media source system, Do not interact with us. 
 
 <img width="74" height="74" alt="eizzha" src="https://github.com/user-attachments/assets/110f63c0-11da-4d29-ba1f-177584b2de2a" />
 
