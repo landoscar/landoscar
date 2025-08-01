@@ -11,7 +11,7 @@ we are not dating @2012maymadness , we are not wanting a relationship right now 
 
 <img width="1280" height="204" alt="257ffd49f507df6c6233bf2e03db35011a08b3fc" src="https://github.com/user-attachments/assets/4f6ffb0e-6a84-490f-ba89-4908a6bd53f5" />
 
-> Hello. I am 1X4 Or VoidBound, I do not mind either one. Though i do prefer 1x1x1x1! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
+> Hello. I am 1X4 Or Creation, I do not mind either one. Though i do prefer 1x1x1x1! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
 >
 > I do not wish to answer your questions about systems unless you are close to me, I've already had my trust broken over that. I am a medically recognized system waiting on a diagnosis. Please do not ask me about systems, Our fronting, Etc. I do not wish to answer.
 >
