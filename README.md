@@ -5,7 +5,6 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BIRDS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=GOONS&style=for-the-badge)
 
-we are not dating @2012maymadness , we are not wanting a relationship right now and do not like anyone. it makes me uncomfy when shipped ooc.
 
 --------------------------------------------------------------------------------------------------------------------------------
 
