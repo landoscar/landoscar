@@ -1,9 +1,10 @@
-<img width="1200" height="900" alt="Untitled27_20250730233440" src="https://github.com/user-attachments/assets/eafa456b-75f8-424d-b128-7b34dcca218f" />
+
+<img width="900" height="900" alt="Untitled27_20250802234432" src="https://github.com/user-attachments/assets/5a4d1205-08d5-41fe-8c42-dd992d76a1b5" />
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BIRDS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=GOONS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BLOCKS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=WEAKNESSES&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)
 
 
 --------------------------------------------------------------------------------------------------------------------------------
