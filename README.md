@@ -12,7 +12,7 @@
 
 <img width="1280" height="204" alt="257ffd49f507df6c6233bf2e03db35011a08b3fc" src="https://github.com/user-attachments/assets/4f6ffb0e-6a84-490f-ba89-4908a6bd53f5" />
 
-> Hello. I am Ellernate Or Itrapped, I do not mind either one. Though i do prefer Itrapped! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies nor do i see 1x4 as ABUSIVE / ETC, I find them as enemies to lovers, Even if 1x4 is Shedletskys hate and malice. I do not see them as related, father and son, etc. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
+> Hello. I am Ellernate Or Itrapped / Taph, I do not mind either one. Though i do prefer Itrapped! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies nor do i see 1x4 as ABUSIVE / ETC, I find them as enemies to lovers, Even if 1x4 is Shedletskys hate and malice. I do not see them as related, father and son, etc. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
 >
 > I do not wish to answer your questions about systems unless you are close to me, I've already had my trust broken over that. I am a medically recognized system waiting on a diagnosis. Please do not ask me about systems, Our fronting, Etc. I do not wish to answer.
 >
