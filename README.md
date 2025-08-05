@@ -1,17 +1,18 @@
 
-<img width="900" height="900" alt="Untitled27_20250802234432" src="https://github.com/user-attachments/assets/5a4d1205-08d5-41fe-8c42-dd992d76a1b5" />
+<img width="900" height="900" alt="Untitled27_20250805140414" src="https://github.com/user-attachments/assets/9d3b9336-fa6e-48fb-954f-1c566f5d1b24" />
+
 
   <p align="center">
  <img width="100" height="100" src="[download (1)](https://github.com/user-attachments/assets/050d4073-066f-4b85-81d1-ac2191e82f1e)">
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=BLOCKS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=WEAKNESSES&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=HACKZ&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=DOMINUSES&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=KILLS&style=for-the-badge)
 
 
 --------------------------------------------------------------------------------------------------------------------------------
 
 <img width="1280" height="204" alt="257ffd49f507df6c6233bf2e03db35011a08b3fc" src="https://github.com/user-attachments/assets/4f6ffb0e-6a84-490f-ba89-4908a6bd53f5" />
 
-> Hello. I am 1X4 Or Creation, I do not mind either one. Though i do prefer 1x1x1x1! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies nor do i see 1x4 as ABUSIVE / ETC, I find them as enemies to lovers, Even if 1x4 is Shedletskys hate and malice. I do not see them as related, father and son, etc. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
+> Hello. I am Ellernate Or Itrapped, I do not mind either one. Though i do prefer Itrapped! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies nor do i see 1x4 as ABUSIVE / ETC, I find them as enemies to lovers, Even if 1x4 is Shedletskys hate and malice. I do not see them as related, father and son, etc. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
 >
 > I do not wish to answer your questions about systems unless you are close to me, I've already had my trust broken over that. I am a medically recognized system waiting on a diagnosis. Please do not ask me about systems, Our fronting, Etc. I do not wish to answer.
 >
