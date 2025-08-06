@@ -36,6 +36,8 @@
 >
 > I also have the basic DNI criteria and basic fandom DNI criteria. If you are actively in the helluva boss/Hazbin hotel fandom, DNI.
 >
+> DNI if you think its right to tell an entire regi staff team about someones mental health issues and played it off as ' caring ', and dni if you favourite people in a staff team and are biased towards them + make really fucking unfunny jokes ! and dni if you think being weird and telling someone that their death threats are fake is right ^_^ 
+>
 > Thank ya for readin this ! If you see me on ponytown feel free to say hi ! I am mainly C + H For friends
 
 -------------------------------------------------------------------------------
