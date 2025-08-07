@@ -14,9 +14,12 @@
 
 > Hello. I am Elliot Or Itrapped / Taph, I do not mind either one. Though i do prefer Taph or elliot! Yes, I ship AdminVirus. No i do not see them as Related. I see them as enemies nor do i see 1x4 as ABUSIVE / ETC, I find them as enemies to lovers, Even if 1x4 is Shedletskys hate and malice. I do not see them as related, father and son, etc. I am Fourteen, And I am a RarePair shipper and MultiShipper. Please dont interact with me if you wish to send me death threats, As i do not wish to be sent death threats again.
 >
+> > I use a pretty advanced screenreader that can glitch easily due to fonts, However Noli, Our headmate, Uses a typing quirk that he uses at times. I use a screenreader because i am half deaf and have trouble seeing in my right eye. Because i am formerly half blind with issues struggling to see in my eye that was blind. Do not use fonts near me or i will simply ignore you or tell you off. Yes, My screenreader is easily glitched. No, I do not cause a big issue over it. I just complain about font usage.
+>
 > I do not wish to answer your questions about systems unless you are close to me, I've already had my trust broken over that. I am a medically recognized system waiting on a diagnosis. Please do not ask me about systems, Our fronting, Etc. I do not wish to answer.
 >
 > I am quite nice if you talk to me a bit more, However i'll be more on the serious side if you've never talked to me before. Because i can't really recognize people easily / Struggle with talking due to Generalized Anxiety Disorder. Do not force me to talk if i do not want to. I am non-verbal unless friend / close.
+>
 >
 > Do not interact with me if i am on DNIUVC, Or i do not consider you close. I only find two people close to me, And it will be obvious who. I do not play favourites, I just get attached to people i hang out with alot ( 1+ months ) then ill allow you to int w me on DNIUC status, If i talk to you alot then yknow. That type of stuff.
 >
