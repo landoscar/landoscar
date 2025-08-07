@@ -7,6 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=PIZZAS&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=HACKZ&style=for-the-badge)![](https://komarev.com/ghpvc/?username=fr0zendebt&color=000000&label=TRIPMINES&style=for-the-badge)
 
+dni madlabs staff besides bell and jevin -- dni especially the person who put spiderlabs dni in they dni your not allat 4 it, i only said you might be defending maddox not that you ARE. learn 2 actually reaadd LOL
 
 --------------------------------------------------------------------------------------------------------------------------------
 
