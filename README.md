@@ -10,15 +10,15 @@
   ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ **sys** fictive / host -- dont overly treat like forsaken source , mainly sourced from may madness 2012
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- frost , virsian + genderfluid . memory holder mainly, along with other roles
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- frost , virsian + genderfluid .
 
- &emsp;  &emsp; ╰┈➤ interact with caution / care
+ &emsp;  &emsp; ╰┈➤ fourteen , october 27th .
  
-  &emsp; &emsp; &emsp;╰──╮ shoutout 2 angeli 4 being awesome 2 us
+  &emsp; &emsp; &emsp;╰──╮ shoutout 2 angeli 4 being awesome 2 me
 
-   &emsp; &emsp; &emsp; &emsp; ✎ medically recognized osdd system pending diagnosis , dni regis / madlabs staff besides jevin and bell
+   &emsp; &emsp; &emsp; &emsp; ✎ dni regis especially regi staff , dni goes both ways. i wont int with you, you wont int w me. this means hiding. dont fucking hide me. -- dni madlabs staff besides bell n jevin
 
 &emsp;  &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
