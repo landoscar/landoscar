@@ -21,6 +21,8 @@
 
    &emsp; &emsp; &emsp; &emsp; ✎ we arent entirely open abt being a system at times .
 
+&emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , We do not feel comfy with that.
+
 &emsp;  &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
