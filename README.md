@@ -2,24 +2,24 @@
 
 <img width="900" height="514" alt="Untitled35_20250808145441" src="https://github.com/user-attachments/assets/61223711-019b-40d4-8379-3ee1ad69c9fd" />
 
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - gliza
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - isaac
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled37_20250810004024" src="https://github.com/user-attachments/assets/52b620bf-9c87-46c4-b5e9-c98003b2ff9f" />
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled37_20250808145327" src="https://github.com/user-attachments/assets/9fb31da7-e161-412e-a080-a5b22a16d2d0" />
 
 
 
   ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time , host of this system
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time , hosts of this system
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- dominus , aroace + genderfluid .
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- dominus , bisexual + genderfluid , he / it / frost , aroace + genderfluid.
 
- &emsp;  &emsp; ╰┈➤ in headspace 17 , october 27th .
+ &emsp;  &emsp; ╰┈➤ in headspace 17 , october 27th . + isaac is 22 yo in headspace .
  
-  &emsp; &emsp; &emsp;╰──╮ source attached -- though i dont act like source.
+  &emsp; &emsp; &emsp;╰──╮ source attached -- though we dont act like source.
 
-   &emsp; &emsp; &emsp; &emsp; ✎ main account is @iitrappedd , we are not open about being a system sometimes.
+   &emsp; &emsp; &emsp; &emsp; ✎ we arent entirely open abt being a system at times .
 
 &emsp;  &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
