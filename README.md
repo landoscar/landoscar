@@ -24,7 +24,9 @@
 
 &emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , We do not feel comfy with that.
 
-&emsp;  &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
+&emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
+
+&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + I have a boyfriend in headspace. Along with the fact it makes me uncomfy when shipped.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
