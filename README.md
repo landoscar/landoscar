@@ -2,9 +2,10 @@
 
 <img width="900" height="514" alt="Untitled35_20250808145441" src="https://github.com/user-attachments/assets/61223711-019b-40d4-8379-3ee1ad69c9fd" />
 
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - isaac
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - roulette
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled37_20250808145327" src="https://github.com/user-attachments/assets/9fb31da7-e161-412e-a080-a5b22a16d2d0" />
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled39_20250810164300" src="https://github.com/user-attachments/assets/2397ec7d-1467-4912-b7fd-0e069008eb40" />
+
 
 
 
@@ -13,9 +14,9 @@
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time , hosts of this system
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- dominus , bisexual + genderfluid , he / it / frost , aroace + genderfluid.
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- dominus , bisexual + genderfluid , he / they , virsian + genderfluid.
 
- &emsp;  &emsp; ╰┈➤ in headspace 17 , october 27th . + isaac is 22 yo in headspace .
+ &emsp;  &emsp; ╰┈➤ in headspace 17 , october 27th . + chance is 17 yo in headspace .
  
   &emsp; &emsp; &emsp;╰──╮ source attached -- though we dont act like source.
 
