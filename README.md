@@ -22,7 +22,7 @@
 
    &emsp; &emsp; &emsp; &emsp; ✎ usually on roblox or afk yeah i play forsaken alot
 
-&emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , We do not feel comfy with that.
+&emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , I do not feel comfy with that.
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
