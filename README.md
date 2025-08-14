@@ -12,21 +12,21 @@
   ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time , hosts of this system
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ he -- it -- dominus , bisexual + genderfluid , he / they , virsian + genderfluid.
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, virsian + genderfluid
 
- &emsp;  &emsp; ╰┈➤ in headspace 17 , october 27th . + chance is 17 yo in headspace .
+ &emsp;  &emsp; ╰┈➤ fourteen.
  
-  &emsp; &emsp; &emsp;╰──╮ source attached -- though we dont act like source.
+  &emsp; &emsp; &emsp;╰──╮ iwcaution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ✎ we arent entirely open abt being a system at times .
+   &emsp; &emsp; &emsp; &emsp; ✎ usually on roblox or afk yeah i play forsaken alot
 
 &emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , We do not feel comfy with that.
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
-&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + I have a boyfriend in headspace. Along with the fact it makes me uncomfy when shipped.
+&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + im taken and angelis taken aswell
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
