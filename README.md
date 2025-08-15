@@ -2,7 +2,7 @@
 
 <img width="900" height="514" alt="Untitled35_20250808145441" src="https://github.com/user-attachments/assets/61223711-019b-40d4-8379-3ee1ad69c9fd" />
 
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - noli
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **isaac** - noli + caleb244
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled30_20250815141252" src="https://github.com/user-attachments/assets/4f403bca-9b20-48a3-ad2f-14e427253a24" />
 
