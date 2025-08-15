@@ -16,7 +16,7 @@
 
    &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, virsian + genderfluid
 
- &emsp;  &emsp; ╰┈➤ fourteen.
+ &emsp;  &emsp; ╰┈➤ minor, dont feel comfy saying age
  
   &emsp; &emsp; &emsp;╰──╮ iwcaution most of the time
 
