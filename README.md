@@ -4,7 +4,8 @@
 
  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **caleb244** - noli
 
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled39_20250810164300" src="https://github.com/user-attachments/assets/2397ec7d-1467-4912-b7fd-0e069008eb40" />
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled30_20250815141252" src="https://github.com/user-attachments/assets/4f403bca-9b20-48a3-ad2f-14e427253a24" />
+
 
 
 
@@ -26,7 +27,7 @@
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
-&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + im taken and angelis taken aswell
+&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + angelis taken
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
