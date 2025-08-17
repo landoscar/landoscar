@@ -27,7 +27,7 @@
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
-&emsp; &emsp; dont ship me with angeli, we're both taken by different people + different sexualities. Angelis lesbian and im bisexual with a preference to men + angelis taken
+&emsp; &emsp; dont ship me with angeli, we have different sexualities. Angelis lesbian and im bisexual with a preference to men + angelis taken
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
