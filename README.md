@@ -1,14 +1,11 @@
-<img width="1200" height="514" alt="Untitled35_20250810002821" src="https://github.com/user-attachments/assets/56de97e4-b654-4be0-8654-d32aadf0ebac" />
-
-<img width="900" height="514" alt="Untitled35_20250808145441" src="https://github.com/user-attachments/assets/61223711-019b-40d4-8379-3ee1ad69c9fd" />
-
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **isaac** - noli + mafioso
-
-  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled30_20250815141252" src="https://github.com/user-attachments/assets/4f403bca-9b20-48a3-ad2f-14e427253a24" />
+<img width="1200" height="514" alt="Untitled43_20250818172309" src="https://github.com/user-attachments/assets/105c6596-e877-4b3f-b65d-ca8c7dcd9292" />
 
 
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **isaac** - slasher + mafioso
 
+  &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled44_20250818172232" src="https://github.com/user-attachments/assets/6d3795da-eda9-4c77-bf45-81b11b92b87d" />
 
+<img width="1200" height="414" alt="Untitled47_20250818173722" src="https://github.com/user-attachments/assets/479822c7-f3cc-4533-af6a-d7995715a03d" />
 
   ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
@@ -31,5 +28,5 @@
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
-<img width="900" height="514" alt="Untitled35_20250808145441" src="https://github.com/user-attachments/assets/fb4a9236-6349-454d-a3c5-c0292930b66f" />
+<img width="1200" height="232" alt="Untitled46_20250818173713" src="https://github.com/user-attachments/assets/34b0c949-cd7b-4502-b630-bc40cb4967eb" />
 
