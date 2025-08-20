@@ -12,7 +12,7 @@
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, virsian + female
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, female . TAKEN BY THE LOML, ANGELI!!
 
  &emsp;  &emsp; ╰┈➤ minor, dont feel comfy saying age
  
