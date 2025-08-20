@@ -24,7 +24,7 @@
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
-&emsp; &emsp; dont ship me with angeli, we have different sexualities. Angelis lesbian and im bisexual
+&emsp; &emsp; please dont ship me with my friends, i am taken by my lovely gf, angeli.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
