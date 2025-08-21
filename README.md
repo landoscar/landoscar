@@ -26,7 +26,7 @@
 
 &emsp; &emsp; please dont ship me with my friends .
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=VOICES&style=for-the-badge)
 
 <img width="1200" height="232" alt="Untitled46_20250818173713" src="https://github.com/user-attachments/assets/34b0c949-cd7b-4502-b630-bc40cb4967eb" />
 
