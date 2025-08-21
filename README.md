@@ -18,7 +18,7 @@
  
   &emsp; &emsp; &emsp;╰──╮ iwcaution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ✎ usually on roblox or afk yeah i play forsaken alot
+   &emsp; &emsp; &emsp; &emsp; ✎ usually on roblox or afk yeah i play forsaken alot , Im neutral on all Forsaken ships unless they are illegal , Inc3st or other problematic things. Do not ask me for my opinion on ships.
 
 &emsp;&emsp; Moderator of Spider Labs / Co Founder . Do not talk / Mention Mental health near me or around me , I do not feel comfy with that.
 
