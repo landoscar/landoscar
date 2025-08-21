@@ -12,7 +12,7 @@
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, female . TAKEN BY THE LOML, ANGELI!!
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, female
 
  &emsp;  &emsp; ╰┈➤ minor, dont feel comfy saying age
  
@@ -24,7 +24,7 @@
 
 &emsp; &emsp; &emsp;╰┈➤ partial hearing impairment , trouble seeing in right eye due to being half blind before treatment. -- advanced screenreader user aswell
 
-&emsp; &emsp; please dont ship me with my friends, i am taken by my lovely gf, angeli.
+&emsp; &emsp; please dont ship me with my friends .
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=catfished-users&style=for-the-badge)
 
