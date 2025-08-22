@@ -1,7 +1,7 @@
 <img width="1200" height="514" alt="Untitled43_20250818172309" src="https://github.com/user-attachments/assets/105c6596-e877-4b3f-b65d-ca8c7dcd9292" />
 
 
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **valkyrie** - slasher + mafioso
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **valkyrie** - slasher + isaac
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled44_20250818172232" src="https://github.com/user-attachments/assets/6d3795da-eda9-4c77-bf45-81b11b92b87d" />
 
