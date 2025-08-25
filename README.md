@@ -1,7 +1,7 @@
-<img width="1200" height="514" alt="Untitled43_20250824203756" src="https://github.com/user-attachments/assets/bd9d5421-6ce1-4741-8232-e25ace1e6b8a" />
+<img width="1200" height="514" alt="Untitled43_20250825053339" src="https://github.com/user-attachments/assets/8fb3a81b-d9a0-471b-bdce-c58babd37ee1" />
 
 
- &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **valkyrie** - slasher + guest or matt .
+ &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; **valkyrie** - molly
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled39_20250824203815" src="https://github.com/user-attachments/assets/a75fc5fe-67c9-45db-adf2-3000295cbf03" />
 
