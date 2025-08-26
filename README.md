@@ -18,7 +18,7 @@
 
  &emsp;  &emsp; ╰┈➤ minor, dont feel comfy saying age
  
-  &emsp; &emsp; &emsp;╰──╮ iwcaution most of the time
+  &emsp; &emsp; &emsp;╰──╮ iwcaution most of the time , i can say out of pocket stuff due to being very unwell mentally . i take accountability for my jokes , though i will not realize i said something wrong unless its said to me . 
 
    &emsp; &emsp; &emsp; &emsp; ✎ usually on roblox or afk yeah i play forsaken alot , Im neutral on all Forsaken ships unless they are illegal , Inc3st or other problematic things. Do not ask me for my opinion on ships.
 
