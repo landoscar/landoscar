@@ -18,6 +18,8 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp; Yes, I ship Pizzapunch / Paycheck. I do not force ships on others, Nor will i try and rp ships with people. Im private about my ships mostly. + Im neutral on most ships , And i am **NOT** Weird about ships.
 
+&emsp;&emsp; I tend to go silent at times, Likely means i've dissociated or just very zoned out . I will not reply to whispers / comments made to me until ive snapped back to reality. I also have emotional dysregulation. No, I do not know when i dissociate or zone out. I zone out as a coping mechanism, And I heavily dissociate.
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=PIZZAS&style=for-the-badge)
 
 <img width="1380" height="133" alt="4r0x0x" src="https://github.com/user-attachments/assets/ade90283-8d93-4566-889c-b0d110072846" />
