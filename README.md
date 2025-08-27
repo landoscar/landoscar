@@ -16,7 +16,7 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp; &emsp; I do not know the things i say sometimes , And wont know that your uncomfy with one of my jokes unless it is told to me directly . I take full responsibility for what i say however.
 
-&emsp; Yes, I ship Pizzapunch. I do not force ships on others, Nor will i try and rp ships with people. Im private about my ships mostly. + Im neutral on most ships , And i am **NOT** Weird about ships.
+&emsp; Yes, I ship Pizzapunch / Paycheck. I do not force ships on others, Nor will i try and rp ships with people. Im private about my ships mostly. + Im neutral on most ships , And i am **NOT** Weird about ships.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=PIZZAS&style=for-the-badge)
 
