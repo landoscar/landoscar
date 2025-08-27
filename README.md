@@ -14,7 +14,7 @@
 
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ╰┈➤ interact with caution most of the time
 
-   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, female
+   &emsp; &emsp; &emsp; &emsp; ⁀➷ bisexual, female . roblox : excorq1sm
 
  &emsp;  &emsp; ╰┈➤ minor, dont feel comfy saying age
  
