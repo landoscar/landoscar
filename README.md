@@ -1,7 +1,9 @@
 $${\color{orange}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp; <img width="136" height="136" alt="Untitled55_20250828052337" src="https://github.com/user-attachments/assets/61251e67-4bbd-4332-adf3-d7b72e516e1f" /><img width="1380" height="204" alt="kyex87" src="https://github.com/user-attachments/assets/73a00c9f-7433-41b3-943e-94fe0689a556" />&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250828052657" src="https://github.com/user-attachments/assets/bc032616-95d8-4062-ba2c-e6fc0ed7d246" />
+&emsp; &emsp; &emsp; &emsp; <img width="136" height="136" alt="Untitled54_20250828054107" src="https://github.com/user-attachments/assets/84a09f56-7b0b-4f9f-a7f1-98b5462e7098" /><img width="1380" height="304" alt="kyex87" src="https://github.com/user-attachments/assets/0d927287-530c-40d5-b72e-af232c8db906" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250828054140" src="https://github.com/user-attachments/assets/9d2aea2f-3cf7-468b-b3ac-b7aa180ad792" />
+
 
 
 
@@ -26,4 +28,4 @@ $${\color{orange}READ-BELOW}$$
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=DAISIES&style=for-the-badge)
 
-<img width="1380" height="133" alt="4r0x0x" src="https://github.com/user-attachments/assets/ade90283-8d93-4566-889c-b0d110072846" />
+<img width="1440" height="181" alt="jl9ybr" src="https://github.com/user-attachments/assets/81dfc41d-ba56-4a73-b492-a5ec10871f20" />
