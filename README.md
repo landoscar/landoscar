@@ -1,14 +1,14 @@
 $${\color{orange}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp; <img width="136" height="136" alt="Untitled54_20250827171251" src="https://github.com/user-attachments/assets/4cd5f89f-704c-4d97-8a58-95f31e391879" /><img width="1380" height="133" alt="4r0x0x" src="https://github.com/user-attachments/assets/ade90283-8d93-4566-889c-b0d110072846" />
- &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250827023737" src="https://github.com/user-attachments/assets/9bfcc59e-fd79-4d61-8260-528a2565bd80" />
+&emsp; &emsp; &emsp; &emsp; <img width="136" height="136" alt="Untitled55_20250828052337" src="https://github.com/user-attachments/assets/61251e67-4bbd-4332-adf3-d7b72e516e1f" /><img width="1380" height="204" alt="kyex87" src="https://github.com/user-attachments/assets/73a00c9f-7433-41b3-943e-94fe0689a556" />&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250828052657" src="https://github.com/user-attachments/assets/bc032616-95d8-4062-ba2c-e6fc0ed7d246" />
+
 
 
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{orange}VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF ELLIOT , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF DAISY . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
 &emsp; &emsp;  Minor , Not comfy saying age. 
 
@@ -22,6 +22,8 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp;&emsp;&emsp; Do not interact with me if you use letters in words / Have Eyestrain skins. I have a severely sensitive right eye and i use a screenreader. I will not try to start a conversation with you.
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=PIZZAS&style=for-the-badge)
+&emsp; I rarely WILL Rp ships with you, As i do not very much enjoy ship rps . Nor do i like forced ship rps , They make me uncomfy.
+
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=DAISIES&style=for-the-badge)
 
 <img width="1380" height="133" alt="4r0x0x" src="https://github.com/user-attachments/assets/ade90283-8d93-4566-889c-b0d110072846" />
