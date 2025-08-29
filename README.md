@@ -29,6 +29,8 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp; I rarely WILL Rp ships with you, As i do not very much enjoy ship rps . Nor do i like forced ship rps , They make me uncomfy.
 
+&emsp;&emsp; I AM A TAKEN WOMAN , I LOVE MY GIRLFRIEND . DO NOT SHIP ME WITH MY FRIENDS , IM UNCOMFY WITH BEING SHIPPED .
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=DAISIES&style=for-the-badge)
 
 <img width="1280" height="184" alt="Tumblr-l-319431492784060" src="https://github.com/user-attachments/assets/fdd92c06-75fb-4dfe-8e54-87ea37853a9e" />
