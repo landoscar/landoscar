@@ -31,6 +31,8 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp;&emsp; I AM A TAKEN WOMAN , I LOVE MY GIRLFRIEND . DO NOT SHIP ME WITH MY FRIENDS , IM UNCOMFY WITH BEING SHIPPED .
 
+&emsp;&emsp; I tend to go distant towards friends, Close or not. I struggle now with long term friendships and just in general, It is nothing against any of my friends, I just go silent and distant to avoid being hurt. Along with having trust issues.
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=DAISIES&style=for-the-badge)
 
 <img width="1280" height="184" alt="Tumblr-l-319431492784060" src="https://github.com/user-attachments/assets/fdd92c06-75fb-4dfe-8e54-87ea37853a9e" />
