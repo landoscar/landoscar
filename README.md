@@ -1,19 +1,19 @@
-$${\color{orange}READ-BELOW}$$
+$${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp; <img width="136" height="136" alt="Untitled54_20250828054107" src="https://github.com/user-attachments/assets/84a09f56-7b0b-4f9f-a7f1-98b5462e7098" /><img width="1280" height="168" alt="tumblr_01086da6c8512207736af3f64d6d151e_65cfc4b6_1280" src="https://github.com/user-attachments/assets/042a0df5-44cb-468b-b648-bcd83fd35c09" />
+&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250830153004" src="https://github.com/user-attachments/assets/64378422-e7d1-4c96-bae8-9f9d6f8fc2e7" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250828054140" src="https://github.com/user-attachments/assets/9d2aea2f-3cf7-468b-b3ac-b7aa180ad792" />
-
-
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250830152956" src="https://github.com/user-attachments/assets/53a7936d-7c08-4a96-adc0-32372f2961ea" />
 
 
-<img width="1280" height="158" alt="Tumblr-l-319432931949059" src="https://github.com/user-attachments/assets/d887ec2f-e8c2-42b9-8e01-3cd72ad0d0f4" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{orange}VALKYRIE}$$
+<img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF DAISY . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALKYRIE}$$
+
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF AZURE + GACHIKOI . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
 &emsp; &emsp;  Minor , Not comfy saying age. nonsharing azure [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
@@ -35,7 +35,8 @@ $${\color{orange}READ-BELOW}$$
 
 &emsp; I am mainly snappy some of the time when i am tired , Pissed off entirely or just not having it with people being complete asses. I take responsibility for what i say , And do not mean to overwhelm anyone . Im on medication for Emotional Dysregulation. 
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=DAISIES&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
 <img width="1280" height="184" alt="Tumblr-l-319431492784060" src="https://github.com/user-attachments/assets/fdd92c06-75fb-4dfe-8e54-87ea37853a9e" />
 
+<img width="1280" height="184" alt="0eugzr" src="https://github.com/user-attachments/assets/826af9d9-821d-45ca-b05a-317e1a95ab8e" />
