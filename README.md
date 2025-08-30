@@ -37,6 +37,4 @@ $${\color{purple}READ-BELOW}$$
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
-<img width="1280" height="184" alt="Tumblr-l-319431492784060" src="https://github.com/user-attachments/assets/fdd92c06-75fb-4dfe-8e54-87ea37853a9e" />
-
 <img width="1280" height="184" alt="0eugzr" src="https://github.com/user-attachments/assets/826af9d9-821d-45ca-b05a-317e1a95ab8e" />
