@@ -35,6 +35,8 @@ $${\color{purple}READ-BELOW}$$
 
 &emsp; I am mainly snappy some of the time when i am tired , Pissed off entirely or just not having it with people being complete asses. I take responsibility for what i say , And do not mean to overwhelm anyone . Im on medication for Emotional Dysregulation. 
 
+dont mention any drama regarding labs , people or friends ive ended friendships with around me . i am not in the best mental state to be dealing with any of this , and its for the best if you do NOT mention anything within those catagories.
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
 <img width="1280" height="184" alt="0eugzr" src="https://github.com/user-attachments/assets/826af9d9-821d-45ca-b05a-317e1a95ab8e" />
