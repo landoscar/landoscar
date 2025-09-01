@@ -37,6 +37,8 @@ $${\color{purple}READ-BELOW}$$
 
 dont mention any drama regarding labs , people or friends ive ended friendships with around me . i am not in the best mental state to be dealing with any of this , and its for the best if you do NOT mention anything within those catagories.
 
+&emsp; do not interact with me if i have ended a friendship with you , it was for a likely good reason . i do not associate with people from my past , nor will we see eye to eye . i will not establish a friendship with you again.
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
 <img width="1280" height="184" alt="0eugzr" src="https://github.com/user-attachments/assets/826af9d9-821d-45ca-b05a-317e1a95ab8e" />
