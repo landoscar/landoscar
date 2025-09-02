@@ -29,8 +29,6 @@ $${\color{purple}READ-BELOW}$$
 
 &emsp; I rarely WILL Rp ships with you, As i do not very much enjoy ship rps . Nor do i like forced ship rps , They make me uncomfy.
 
-&emsp;&emsp; I AM A TAKEN WOMAN , I LOVE MY GIRLFRIEND . DO NOT SHIP ME WITH MY FRIENDS , IM UNCOMFY WITH BEING SHIPPED .
-
 &emsp;&emsp; I tend to go distant towards friends, Close or not. I struggle now with long term friendships and just in general, It is nothing against any of my friends, I just go silent and distant to avoid being hurt. Along with having trust issues.
 
 &emsp; I am mainly snappy some of the time when i am tired , Pissed off entirely or just not having it with people being complete asses. I take responsibility for what i say , And do not mean to overwhelm anyone . Im on medication for Emotional Dysregulation. 
