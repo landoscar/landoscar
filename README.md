@@ -1,9 +1,9 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250830153004" src="https://github.com/user-attachments/assets/64378422-e7d1-4c96-bae8-9f9d6f8fc2e7" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
+&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250901232958" src="https://github.com/user-attachments/assets/2e95c682-d2e2-4464-9288-aa5070385777" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250830152956" src="https://github.com/user-attachments/assets/53a7936d-7c08-4a96-adc0-32372f2961ea" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250901232939" src="https://github.com/user-attachments/assets/6216a929-4c75-431d-a7df-1c2ccbf20196" />
 
 
 
@@ -13,9 +13,9 @@ $${\color{purple}READ-BELOW}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALENTINE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF AZURE / PEST + GACHIKOI . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF CATHERINE / ARTFUL + GACHIKOI . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing azure / pest [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing artful [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
