@@ -1,7 +1,7 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250901232958" src="https://github.com/user-attachments/assets/2e95c682-d2e2-4464-9288-aa5070385777" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
+&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250902161827" src="https://github.com/user-attachments/assets/cfa6523b-55fe-4f76-aa9e-9cba857eb5db" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250901232939" src="https://github.com/user-attachments/assets/6216a929-4c75-431d-a7df-1c2ccbf20196" />
 
