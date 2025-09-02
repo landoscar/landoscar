@@ -11,7 +11,7 @@ $${\color{purple}READ-BELOW}$$
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALKYRIE}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALENTINE}$$
 
 &emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF AZURE / PEST + GACHIKOI . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
