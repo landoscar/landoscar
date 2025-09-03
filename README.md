@@ -1,22 +1,25 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="136" height="136" alt="Untitled54_20250901233017" src="https://github.com/user-attachments/assets/c7a5fce2-6c80-4bcb-95cb-a72565e38e55" /><img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250902233503" src="https://github.com/user-attachments/assets/017330d8-84e4-47f9-a744-164744fae1bd" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="136" height="136" alt="Untitled54_20250901232939" src="https://github.com/user-attachments/assets/6216a929-4c75-431d-a7df-1c2ccbf20196" />
+<img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
+
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250902233635" src="https://github.com/user-attachments/assets/c558199e-45bc-451b-8f33-c01b242e5bee" />
+
 
 
 
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="136" height="136" alt="Untitled54_20250901232958" src="https://github.com/user-attachments/assets/1bd70cc5-3002-464c-b386-161e0d344952" />
+<img width="136" height="136" alt="Untitled54_20250902233516" src="https://github.com/user-attachments/assets/42727557-a9b4-4e56-84f7-6ed3be7409f2" />
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALENTINE-VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF CATHERINE / ARTFUL + GACHIKOI . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF MATT . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing artful [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing matt [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
