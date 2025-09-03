@@ -1,12 +1,13 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250903160545" src="https://github.com/user-attachments/assets/a587c00a-78fa-4c58-b35f-bdac3244b531" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250903185804" src="https://github.com/user-attachments/assets/969e7689-8cdd-438f-b3d0-ddb4a8e8dc5a" />
+
 
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250903160506" src="https://github.com/user-attachments/assets/ab7d318b-a3ac-4e66-b4da-aada0cc5df71" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250903185840" src="https://github.com/user-attachments/assets/11411a42-410c-4414-a94b-6c8c2e110f9c" />
 
 
 
@@ -16,10 +17,11 @@ $${\color{purple}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="136" height="136" alt="Untitled54_20250903160452" src="https://github.com/user-attachments/assets/7c78d442-61c5-4bd1-abd9-ed1574f0dcae" />
+
+<img width="136" height="136" alt="Untitled54_20250903185913" src="https://github.com/user-attachments/assets/01eb694c-5f94-4ad3-920c-ca3efe65b32c" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}MOLLY-VALKYRIE}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}DAISY-VALKYRIE}$$
 
 &emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF MOLLY AND DAISY ( githubs molly themed cause i cba to fix it ) . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
