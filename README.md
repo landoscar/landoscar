@@ -1,11 +1,13 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250902233503" src="https://github.com/user-attachments/assets/017330d8-84e4-47f9-a744-164744fae1bd" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250903160545" src="https://github.com/user-attachments/assets/a587c00a-78fa-4c58-b35f-bdac3244b531" />
+
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250903001543" src="https://github.com/user-attachments/assets/e3c55833-d858-446d-8d7e-815df3a4134c" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250903160506" src="https://github.com/user-attachments/assets/ab7d318b-a3ac-4e66-b4da-aada0cc5df71" />
+
 
 
 
@@ -14,13 +16,14 @@ $${\color{purple}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="136" height="136" alt="Untitled54_20250902233516" src="https://github.com/user-attachments/assets/42727557-a9b4-4e56-84f7-6ed3be7409f2" />
+<img width="136" height="136" alt="Untitled54_20250903160452" src="https://github.com/user-attachments/assets/7c78d442-61c5-4bd1-abd9-ed1574f0dcae" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}VALENTINE-VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF MATT . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}MOLLY-VALKYRIE}$$
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing matt [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF MOLLY . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing molly [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
