@@ -18,7 +18,8 @@ $${\color{purple}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="236" height="236" alt="Untitled54_20250906005656" src="https://github.com/user-attachments/assets/9dd133ce-d3a9-4a8d-810f-0276e18e61e5" />
+<img width="136" height="136" alt="Untitled54_20250906010623" src="https://github.com/user-attachments/assets/f2015e8a-1112-407b-9326-60e625384c96" />
+
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}ARTFUL-VALKYRIE}$$
 
