@@ -1,13 +1,14 @@
 $${\color{purple}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250903185804" src="https://github.com/user-attachments/assets/969e7689-8cdd-438f-b3d0-ddb4a8e8dc5a" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250906010717" src="https://github.com/user-attachments/assets/57362c12-13ef-461c-b95f-30e94ced8b29" />
+
 
 
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250903185840" src="https://github.com/user-attachments/assets/11411a42-410c-4414-a94b-6c8c2e110f9c" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250906005716" src="https://github.com/user-attachments/assets/0b38d509-d250-4f29-965c-dd53b552af87" />
 
 
 
@@ -17,15 +18,13 @@ $${\color{purple}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
+<img width="236" height="236" alt="Untitled54_20250906005656" src="https://github.com/user-attachments/assets/9dd133ce-d3a9-4a8d-810f-0276e18e61e5" />
 
-<img width="136" height="136" alt="Untitled54_20250903185913" src="https://github.com/user-attachments/assets/01eb694c-5f94-4ad3-920c-ca3efe65b32c" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}ARTFUL-VALKYRIE}$$
 
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF ARTFUL . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}DAISY-VALKYRIE}$$
-
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF MOLLY AND DAISY ( githubs molly themed cause i cba to fix it ) . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
-
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing molly and daisy [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing artful [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
