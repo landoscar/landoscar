@@ -1,14 +1,17 @@
-$${\color{purple}READ-BELOW}$$
+$${\color{darkred}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250906010717" src="https://github.com/user-attachments/assets/57362c12-13ef-461c-b95f-30e94ced8b29" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250907154519" src="https://github.com/user-attachments/assets/152fc3f7-95bf-488d-99fd-6f2ebb60664c" />
+
+
 
 
 
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250906005716" src="https://github.com/user-attachments/assets/0b38d509-d250-4f29-965c-dd53b552af87" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250907154509" src="https://github.com/user-attachments/assets/69aa9753-f9f8-433f-960f-960f1ccf7aa6" />
+
 
 
 
@@ -18,14 +21,14 @@ $${\color{purple}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="136" height="136" alt="Untitled54_20250906010623" src="https://github.com/user-attachments/assets/f2015e8a-1112-407b-9326-60e625384c96" />
+<img width="136" height="136" alt="Untitled54_20250907154532" src="https://github.com/user-attachments/assets/8a2222ac-8615-4c82-a3e2-4f2c6ff08425" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{purple}ARTFUL-VALKYRIE}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{darkred}JOHN DOE-VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF ARTFUL . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF JOHN DOE + DEMON KING . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing artful [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing johndoe/demonking [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
