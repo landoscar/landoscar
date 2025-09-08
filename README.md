@@ -46,7 +46,7 @@ $${\color{darkred}READ-BELOW}$$
 
 &emsp; I am mainly snappy some of the time when i am tired , Pissed off entirely or just not having it with people being complete asses. I take responsibility for what i say , And do not mean to overwhelm anyone . Im on medication for Emotional Dysregulation. 
 
-dont mention any drama regarding labs , people or friends ive ended friendships with around me . i am not in the best mental state to be dealing with any of this , and its for the best if you do NOT mention anything within those catagories.
+dont mention any drama regarding labs , people or friends ive ended friendships with around me . i am not in the best mental state to be dealing with any of this , and its for the best if you do NOT mention anything within those catagories. do not associate me with the sra / madlabs drama anymore, i do not wish to be involved anymore.
 
 &emsp; do not interact with me if i have ended a friendship with you , it was for a likely good reason . i do not associate with people from my past , nor will we see eye to eye . i will not establish a friendship with you again.
 
