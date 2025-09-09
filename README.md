@@ -1,7 +1,8 @@
-$${\color{darkred}READ-BELOW}$$
+$${\color{tan}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250907154519" src="https://github.com/user-attachments/assets/152fc3f7-95bf-488d-99fd-6f2ebb60664c" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250909133115" src="https://github.com/user-attachments/assets/1cde3455-a3b3-4750-90b3-0314b6b96322" />
+
 
 
 
@@ -10,7 +11,8 @@ $${\color{darkred}READ-BELOW}$$
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250907154509" src="https://github.com/user-attachments/assets/69aa9753-f9f8-433f-960f-960f1ccf7aa6" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250909133101" src="https://github.com/user-attachments/assets/d1a323af-6be1-4bf4-83b8-f4bf05865457" />
+
 
 
 
@@ -21,14 +23,15 @@ $${\color{darkred}READ-BELOW}$$
 
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
-<img width="136" height="136" alt="Untitled54_20250907154532" src="https://github.com/user-attachments/assets/8a2222ac-8615-4c82-a3e2-4f2c6ff08425" />
+
+<img width="136" height="136" alt="Untitled54_20250909133048" src="https://github.com/user-attachments/assets/335a9042-15ef-43ed-b838-d3ee13788c6a" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{darkred}JOHN DOE-VALKYRIE}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}CALEB244-VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF JOHN DOE + DEMON KING . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF CALEB244 . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing johndoe/demonking [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing contractee [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns
 
