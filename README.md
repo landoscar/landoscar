@@ -33,7 +33,7 @@ $${\color{tan}READ-BELOW}$$
 
 &emsp; &emsp;  Minor , Not comfy saying age. nonsharing contractee [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
-&emsp;  **Bisexual** , Nonbinary . She / They pronouns
+&emsp;  **Bisexual** , Nonbinary . She / They pronouns . proshippers n darkshippers dni
 
 &emsp; &emsp; I do not know the things i say sometimes , And wont know that your uncomfy with one of my jokes unless it is told to me directly . I take full responsibility for what i say however.
 
