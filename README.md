@@ -1,7 +1,8 @@
 $${\color{tan}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250909133115" src="https://github.com/user-attachments/assets/1cde3455-a3b3-4750-90b3-0314b6b96322" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250910151841" src="https://github.com/user-attachments/assets/e6cfe7e6-fdad-4691-8a75-93dcdf8f970f" />
+
 
 
 
@@ -11,7 +12,8 @@ $${\color{tan}READ-BELOW}$$
 
 <img width="1380" height="168" alt="pct622" src="https://github.com/user-attachments/assets/4254d9a9-4b0d-4650-96b0-fcdabb96c893" />
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250909133101" src="https://github.com/user-attachments/assets/d1a323af-6be1-4bf4-83b8-f4bf05865457" />
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;  <img width="236" height="236" alt="Untitled54_20250910151905" src="https://github.com/user-attachments/assets/6a8bc196-3221-4454-bd23-7a72df6ee9fb" />
+
 
 
 
@@ -24,10 +26,11 @@ $${\color{tan}READ-BELOW}$$
 <img width="1280" height="158" alt="qbkdfc" src="https://github.com/user-attachments/assets/7aaaf65c-6b7a-4ad1-911f-f02318c0379a" />
 
 
-<img width="136" height="136" alt="Untitled54_20250909133048" src="https://github.com/user-attachments/assets/335a9042-15ef-43ed-b838-d3ee13788c6a" />
+<img width="136" height="136" alt="Untitled54_20250910152119" src="https://github.com/user-attachments/assets/2e7c5844-0c5b-4c9b-a5d9-7ec1f1c6caf8" />
 
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}CALEB244-VALKYRIE}$$
+
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}EVANGELINE-VALKYRIE}$$
 
 &emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF CALEB244 . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
