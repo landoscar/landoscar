@@ -32,9 +32,9 @@ $${\color{tan}READ-BELOW}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}EVANGELINE-VALKYRIE}$$
 
-&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF CALEB244 . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
+&emsp; &emsp; &emsp; &emsp; **FICTION**KIN OF OPTIMUS PRIME . , NOT A SYSTEM . DIAGNOSED WITH OSDD BUT NOT A SYSTEM.
 
-&emsp; &emsp;  Minor , Not comfy saying age. nonsharing contractee [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
+&emsp; &emsp;  Minor , Not comfy saying age. nonsharing optimus prime [gachikoi](https://en.wiktionary.org/wiki/%E3%81%8C%E3%81%A1%E3%81%93%E3%81%84)
 
 &emsp;  **Bisexual** , Nonbinary . She / They pronouns . proshippers n darkshippers dni
 
