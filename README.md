@@ -33,6 +33,7 @@ $${\color{tan}READ-BELOW}$$
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}EVANGELINE-VALKYRIE}$$
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/)
+         i cba to make it big LOL
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
