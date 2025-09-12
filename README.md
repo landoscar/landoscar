@@ -1,7 +1,8 @@
 $${\color{tan}READ-BELOW}$$
 
 
-&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250910151841" src="https://github.com/user-attachments/assets/e6cfe7e6-fdad-4691-8a75-93dcdf8f970f" />
+&emsp; &emsp; &emsp; &emsp;<img width="236" height="236" alt="Untitled54_20250912170524" src="https://github.com/user-attachments/assets/80215b0b-623b-4466-9a37-05de193b2112" />
+
 
 
 
