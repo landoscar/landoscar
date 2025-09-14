@@ -35,7 +35,7 @@ $${\color{tan}READ-BELOW}$$
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
          
-i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER.
+i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS 
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
