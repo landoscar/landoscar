@@ -34,6 +34,8 @@ $${\color{tan}READ-BELOW}$$
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
+
+keep in mind i dissociate alot and have fictkin shifts . my dissociation can get severe. my dissociation is caused by OSDD, I am not a system.
          
 i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS 
 
