@@ -39,6 +39,8 @@ keep in mind i dissociate alot and have fictkin shifts . my dissociation can get
          
 i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS 
 
+plus hiding me is a waste of a hide space because i legit mind my own business LOL i dont interact with anyone when alone.
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
 <img width="1280" height="184" alt="0eugzr" src="https://github.com/user-attachments/assets/826af9d9-821d-45ca-b05a-317e1a95ab8e" />
