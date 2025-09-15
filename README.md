@@ -37,7 +37,7 @@ $${\color{tan}READ-BELOW}$$
 
 keep in mind i dissociate alot and have fictkin shifts . my dissociation can get severe. my dissociation is caused by OSDD, I am not a system.
          
-i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS 
+DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS + DNI IF YOUR A PROSHIPPER , DARKSHIPPER OR PROBLEMATIC.
 
 also hiding me is just useless LOL i dont interact with strangers on ponytown and always interact with my friends. nor do i stay out of whispers w my friends 4 convos, i usually rp.
 
