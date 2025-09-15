@@ -39,7 +39,7 @@ keep in mind i dissociate alot and have fictkin shifts . my dissociation can get
          
 i cba to make it big LOL, DO NOT FOLLOW ME IF YOUR A PROSHIPPER / DARKSHIPPER. IM UNCOMFY WITH PROSHIPPERS / DARKSHIPPERS 
 
-plus hiding me is a waste of a hide space because i legit mind my own business LOL i dont interact with anyone when alone.
+also hiding me is just useless LOL i dont interact with strangers on ponytown and always interact with my friends. nor do i stay out of whispers w my friends 4 convos, i usually rp.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=NIGHTSHADES&style=for-the-badge)
 
