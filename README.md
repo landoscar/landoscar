@@ -2,7 +2,9 @@ $${\color{tan}READ-BELOW}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
 
-i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others + im a optimus yumeshipper and fictionkin
+i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others 
+
+im a optimus yumeshipper and fictionkin
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
 
