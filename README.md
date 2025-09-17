@@ -4,7 +4,7 @@ $${\color{tan}READ-BELOW}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others 
 
-im a optimus selfshipper and fictionkin , Dni MegOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
+im a optimus selfshipper and fictionkin , Dni Bumblebee x Optimus shippers. Do not interact. Seriously.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
 
