@@ -6,7 +6,7 @@ i do appreciate every crown i get by the way!! im just too socially anxious 2 in
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously. Im a potential System, Waiting for a complete analysis.
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=AUTOBOTS&style=for-the-badge)
 
