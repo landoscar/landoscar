@@ -1,8 +1,8 @@
-$${\color{tan}READ-BELOW}$$
+$${\color{tan}OSDD-SYSTEM}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
 
-i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others . more then likely a osdd system
+i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
