@@ -4,7 +4,7 @@ $${\color{tan}OSDD-SYSTEM}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
-dni if you think we're faking being a system , we're not. ^_^
+dni if you think we're faking being a system , we're not. ^_^ + dni endogenic systems 
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
