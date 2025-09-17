@@ -4,7 +4,7 @@ $${\color{tan}READ-BELOW}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others 
 
-im a optimus selfshipper and fictionkin , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
+im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously. Im a potential System, Waiting for a complete analysis.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/syw4yav2) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
 
@@ -12,6 +12,6 @@ im a optimus selfshipper and fictionkin , Dni MegaOp + Bumblebee x Optimus shipp
 
 <img width="1200" height="1478" alt="Untitled61_20250915140206" src="https://github.com/user-attachments/assets/ed772dbb-1326-4e96-ac43-1233c1f9e7cf" />
 
-> keep in mind i dissociate alot and have fictkin shifts . my dissociation can get severe. my dissociation is caused by OSDD, I am not a system.
+> keep in mind i dissociate alot. my dissociation can get severe. my dissociation is caused by OSDD
 >
 > dni proships/darkships . also i dont really caare if you hide me im just living my life
