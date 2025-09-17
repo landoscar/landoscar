@@ -2,9 +2,9 @@ $${\color{tan}READ-BELOW}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
 
-i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others 
+i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others . more then likely a osdd system
 
-im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously. Im a potential System, Waiting for a complete analysis.
+im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) -- [ATABOOK](https://arabiannightz.atabook.org/) ]
 
