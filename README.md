@@ -4,6 +4,7 @@ $${\color{tan}READ-BELOW}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
+dni if ex friends / apart of my past . i dont want to int with you, nor do i want to ever talk to you again .
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
