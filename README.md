@@ -8,7 +8,7 @@ seriously fucking dni if your apart of my past , i dont want you interacting wit
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr)
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) ] 
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=AUTOBOTS&style=for-the-badge)
 
