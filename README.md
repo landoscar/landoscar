@@ -4,7 +4,6 @@ $${\color{tan}READ-BELOW}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
-seriously fucking dni if your apart of my past , i dont want you interacting with me . im a diagnosed system WITH a diagnosis from a psychiatrist + getting genuine help ^_^ cant change that !!
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
