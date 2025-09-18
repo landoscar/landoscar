@@ -4,7 +4,7 @@ $${\color{tan}OSDD-SYSTEM}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
-not faking <33 dont assume because of our age, past experiences, etc . do not harass us either ^_^
+not faking <33 dont assume because of our age, past experiences, etc . do not harass us either ^_^ , dni ex-friends aswell .
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
