@@ -4,7 +4,7 @@ $${\color{tan}READ-INFO}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
-if you ask me where the info went about the stuff, it got removed for safety reasons
+if you ask me where the info went about the sys stuff, it got removed for safety reasons
 
 im a optimus and starscream selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
