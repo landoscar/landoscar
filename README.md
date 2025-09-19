@@ -12,7 +12,7 @@ im a optimus and starscream selfshipper , Dni MegaOp + Bumblebee x Optimus shipp
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=AUTOBOTS&style=for-the-badge)
 
-<img width="1200" height="1478" alt="Untitled61_20250915140206" src="https://github.com/user-attachments/assets/ed772dbb-1326-4e96-ac43-1233c1f9e7cf" />
+<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/bb516d02-8093-4e20-8f82-b51d3300e999" />
 
 > keep in mind i dissociate alot. my dissociation can get severe. my dissociation is caused by OSDD
 >
