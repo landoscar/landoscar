@@ -6,7 +6,7 @@ i do appreciate every crown i get by the way!! im just too socially anxious 2 in
 
 if you ask me where the info went about the stuff, it got removed for safety reasons
 
-im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
+im a optimus and starscream selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) ] 
 
