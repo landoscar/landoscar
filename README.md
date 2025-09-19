@@ -1,10 +1,10 @@
-$${\color{tan}OSDD-SYSTEM}$$
+$${\color{tan}READ-INFO}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
-not faking <33 dont assume because of our age, past experiences, etc . do not harass us either ^_^ , dni ex-friends aswell .
+if you ask me where the info went about the stuff, it got removed for safety reasons
 
 im a optimus selfshipper , Dni MegaOp + Bumblebee x Optimus shippers. Do not interact. Seriously.
 
