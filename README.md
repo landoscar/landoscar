@@ -1,6 +1,6 @@
 $${\color{tan}READ-INFO}$$
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}OPTIMUS-VALKYRIE}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}CYBERTRON}$$
 
 i do appreciate every crown i get by the way!! im just too socially anxious 2 int with others .
 
