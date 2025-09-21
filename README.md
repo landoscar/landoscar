@@ -1,4 +1,4 @@
-$${\color{tan}READ-INFO}$$
+$${\color{tan}CYBERTRON COLLECTIVE}$$
 
 &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}CYBERTRON}$$
 
