@@ -4,7 +4,7 @@ $${\color{tan}CYBERTRON COLLECTIVE}$$
 
 OSDD System -- NOT A PONYTOWN SYSTEM ! ! DO NOT THINK WE ARE, WE'RE DIAGNOSED AND FUNCTION OUTSIDE OF PONYTOWN.
 
-dni endo systems , ex friends and systems that are FAKING [ REAL SYSTEMS MAY INT ]
+dni endo systems , ex friends and systems that are FAKING . plus dni if you have an issue with us or dont trust us, we dont want communication with those who have issues with us or do not trust us.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) ] 
 
