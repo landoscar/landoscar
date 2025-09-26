@@ -14,4 +14,4 @@ we dont owe you anything about ourselves , our trauma, etc . the only thing you 
 
 <img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/bb516d02-8093-4e20-8f82-b51d3300e999" />
 
-also we dont gaf if you unadd us the world keeps spinning
+also we dont gaf if you unadd us the world keeps spinning, plus we're just gonna keep living without you as a friend LOL
