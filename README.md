@@ -1,17 +1,17 @@
-$${\color{tan}CYBERTRON COLLECTIVE}$$
+$${\color{red}OSDD-SYS}$$
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{tan}CYBERTRON}$$
+&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;   $${\color{blue}HIGHWAY-PATROL}$$
 
-OSDD System -- NOT A PONYTOWN SYSTEM ! ! DO NOT THINK WE ARE, WE'RE DIAGNOSED AND FUNCTION OUTSIDE OF PONYTOWN.
+Do not Harass Us, We could not give less fucks if you have an issue with us. Keep that shit to yourself.
 
-dni endo systems , ex friends and systems that are FAKING . plus dni if you have an issue with us or dont trust us, we dont want communication with those who have issues with us or do not trust us.
+Yes, We are deadass called the Highway Patrol Collective. Mainly because of the amount of Police cruiser headmates we have.
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;[ [ABOUT ME](https://rentry.co/pvkyrfmr) ] 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Actively Diagnosed with OSDD , Only thing you get to know about us is whos fronting and their pronouns .
 
-![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=AUTOBOTS&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=ARRESTS&style=for-the-badge)
 
-we dont owe you anything about ourselves , our trauma, etc . the only thing you GET to know is our pronouns on whoevers fronting ^_^
+Hyperfixated on : Police cruisers, Law Enforcement, Transformers, First responders, Etc.
 
-<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/bb516d02-8093-4e20-8f82-b51d3300e999" />
+<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/0e71693f-c7cc-4844-8bfc-003f2327ca5c" />
 
-also we dont gaf if you unadd us the world keeps spinning, plus we're just gonna keep living without you as a friend LOL
+We could not give less fucks if you unadd us, Block us, Etc. Our world does not revolve around the ex-friendship we had. 
