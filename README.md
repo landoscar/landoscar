@@ -8,6 +8,8 @@ Do not Harass Us, We could not give less fucks if you have an issue with us. Kee
 
 Yes, We are deadass called the Highway Patrol Collective. Mainly because of the amount of Police cruiser headmates we have.
 
+DO NOT ASSOCIATE ME WITH : Regiments, SRA, Madlabs, Any SRA Affiliated laboratories. I do not want contact with any of those people in the mentioned.
+
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Actively Diagnosed with OSDD , Only thing you get to know about us is whos fronting and their pronouns .
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=ARRESTS&style=for-the-badge)
