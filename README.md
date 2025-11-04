@@ -1,3 +1,6 @@
+<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/28d69c89-650a-4fc6-bc41-ad6fc69b6761" />
+
+
 in terms of my yumeshipping, i acknowledge that their real people, i acknowledge that they have actual significant others, i dont hate on them
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
@@ -22,9 +25,5 @@ in terms of my yumeshipping, i acknowledge that their real people, i acknowledge
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
 
 
-<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/b3c7659e-5668-4416-9fa5-be07e7f9329e" />
-
-<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/e185c00a-03a5-4960-8261-6b39ac01ce47" />
-
-<img width="1200" height="1478" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/41312460-58ec-4c77-8bb7-ac1cb02b911e" />
+<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/971bbe7e-3b84-4ba9-93aa-08a4055f6882" />
 
