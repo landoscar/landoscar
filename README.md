@@ -1,7 +1,6 @@
-<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/28d69c89-650a-4fc6-bc41-ad6fc69b6761" />
+<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/43d18b99-d3ba-4f34-94ae-830b88c5477e" />
 
-
-in terms of my yumeshipping, i acknowledge that their real people, i acknowledge that they have actual significant others, i dont hate on them
+in terms of my yumeship, i acknowledge hes a real person and has a significant other. i will not harass his significant other or him.
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
@@ -20,10 +19,10 @@ in terms of my yumeshipping, i acknowledge that their real people, i acknowledge
 
 &emsp; &emsp; &emsp;╰┈➤ busy alot due to school, exams, part time job, etc. though i will find time to talk with friends and stuff.
 
-&emsp; &emsp; dont ship me with my friends, i have my yumeships and a girlfriend. i love my girlfriend.
+&emsp; &emsp; dont ship me with my friends, i have my yumeship and a girlfriend. i love my girlfriend.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
 
 
-<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/971bbe7e-3b84-4ba9-93aa-08a4055f6882" />
+<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/1616e30f-5af2-46a3-abea-d36d9d0c4cd3" />
 
