@@ -19,7 +19,7 @@ in terms of my yumeship, i acknowledge hes a real person and has a significant o
 
 &emsp; &emsp; &emsp;╰┈➤ busy alot due to school, exams, part time job, etc. though i will find time to talk with friends and stuff.
 
-&emsp; &emsp; dont ship me with my friends, i have my yumeship and a girlfriend. i love my girlfriend.
+&emsp; &emsp; dont ship me with my friends, i have my yumeships and a girlfriend. i love my girlfriend.
 
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
 
