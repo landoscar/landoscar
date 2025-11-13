@@ -1,4 +1,4 @@
-<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/43d18b99-d3ba-4f34-94ae-830b88c5477e" />
+<img width="1200" height="1178" alt="Untitled95_20251112233027" src="https://github.com/user-attachments/assets/eec16fd7-82b3-478d-9e05-9043fcf86296" />
 
 in terms of my yumeship, i acknowledge hes a real person and has a significant other. i will not harass his significant other or him.
 
@@ -24,5 +24,5 @@ in terms of my yumeship, i acknowledge hes a real person and has a significant o
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
 
 
-<img width="1200" height="1178" alt="Untitled62_20250919030820" src="https://github.com/user-attachments/assets/1616e30f-5af2-46a3-abea-d36d9d0c4cd3" />
+<img width="1200" height="1178" alt="Untitled95_20251112232718" src="https://github.com/user-attachments/assets/ff684555-da9a-4ba5-8f78-64ae0aaffda4" />
 
