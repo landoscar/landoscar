@@ -1,7 +1,5 @@
 <img width="1200" height="1178" alt="Untitled95_20251112233027" src="https://github.com/user-attachments/assets/eec16fd7-82b3-478d-9e05-9043fcf86296" />
 
-in terms of my yumeship, i acknowledge hes a real person and has a significant other. i will not harass his significant other or him.
-
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
