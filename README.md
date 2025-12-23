@@ -6,4 +6,6 @@ other specified dissocative disorder type 1b system , very introject heavy syste
 
 we do not remember names easily, due to memory loss from generalized anxiety disorder. please do remind us who you are if you arent a friend that we can check profiles of easily
 
+basic dni
+
 ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=RACES-WON&style=for-the-badge)
