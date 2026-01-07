@@ -15,6 +15,8 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans.
 
+𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about lando norris's wdc title. nor do i give two shits about max verstappens titles. theyre drivers, not gods. its not the end of the world if max verstappen loses a title.
+
                             BOUNDARIES
 
 
@@ -23,6 +25,12 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 ♡ - be patient with me , i am diagnosed with generalized anxiety disorder and have trouble with social interaction especially online. 
 
 ꒰ঌ ໒꒱ > basic dni applies to me, dni if 20+ unless a friend of a friend of mine.
+
+𓊆ྀི❤︎𓊇ྀི > do not talk to me if you ship landoscar, i do not fucking like that ship and its genuinely horrid.
+
+𓊆ྀི❤︎𓊇ྀི > dont talk to me if you support landos actions, the piquets actions, or maguis actions.
+
+𓊆ྀི❤︎𓊇ྀི > dni if your a toxic max verstappen fan ( the ones that pull up max verstappens 2023 wins ), i do not fuck with you toxic max fans.
 
 other basic boundaries aswell
 
