@@ -30,7 +30,7 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 𓊆ྀི❤︎𓊇ྀི > dont talk to me if you support landos actions, the piquets actions, or maguis actions.
 
-𓊆ྀི❤︎𓊇ྀི > dni if your a toxic max verstappen fan ( the ones that pull up max verstappens 2023 wins ), i do not fuck with you toxic max fans.
+𓊆ྀི❤︎𓊇ྀི > dni if your a toxic max verstappen fan ( the ones that pull up max verstappens 2023 wins like hes a living god with 900 championships ), i do not fuck with you toxic max fans.
 
 ╰┈➤ > dni any and all lando fans, i dont like people who support a trump liker
 
