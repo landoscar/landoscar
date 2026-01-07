@@ -32,6 +32,8 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 𓊆ྀི❤︎𓊇ྀི > dni if your a toxic max verstappen fan ( the ones that pull up max verstappens 2023 wins ), i do not fuck with you toxic max fans.
 
+╰┈➤ > dni any and all lando fans, i dont like people who support a trump liker
+
 other basic boundaries aswell
 
                         FANDOMS IM IN
