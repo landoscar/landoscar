@@ -15,7 +15,9 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans.
 
-𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about lando norris's wdc title. nor do i give two shits about max verstappens titles. theyre drivers, not gods. its not the end of the world if max verstappen loses a title.
+𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about max verstappens's wdc titles. he is a driver, not a god. its not the end of the world if max verstappen loses a title.
+
+YES, i am a lando norris fan. does this mean ill go out of my way to harass and send death threats to other f1 fans and fangirl over him? NO. Nor do i support his actions supporting trump. I simply like him because of his driving.
 
                             BOUNDARIES
 
@@ -26,13 +28,13 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 ꒰ঌ ໒꒱ > basic dni applies to me, dni if 20+ unless a friend of a friend of mine.
 
-𓊆ྀི❤︎𓊇ྀི > do not talk to me if you ship landoscar, i do not fucking like that ship and its genuinely horrid.
+𓊆ྀི❤︎𓊇ྀི > interact with caution if you fangirl over f1 drivers, iwc if you ship landoscar or lestappen. sorry not sorry.
 
 𓊆ྀི❤︎𓊇ྀི > dont talk to me if you support landos actions, the piquets actions, or maguis actions.
 
 𓊆ྀི❤︎𓊇ྀི > dni if your a toxic max verstappen fan ( the ones that pull up max verstappens 2023 wins like hes a living god with 900 championships ), i do not fuck with you toxic max fans.
 
-╰┈➤ > dni any and all lando fans, i dont like people who support a trump liker
+╰┈➤ > IWC if you support lando ( freely int if you only like lando for his driving, not his actions )
 
 other basic boundaries aswell
 
