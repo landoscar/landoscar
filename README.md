@@ -19,6 +19,8 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 YES, i am a lando norris fan. does this mean ill go out of my way to harass and send death threats to other f1 fans and fangirl over him? NO. Nor do i support his actions supporting trump. I simply like him because of his driving.
 
+---> my pc is broken so you wont be seeing me on ponytown until i get a new one.
+
                             BOUNDARIES
 
 
