@@ -4,7 +4,7 @@
                               
                               2025 GRAND SLAM , FORMULA ONE HEINEKEN DUTCH GRAND PRIX 2025 . OSCAR PIASTRI
 
-────୨ৎ──── > your very much likely viewing this github from my dear and lovely friend, zam / lomedy. no zam is NOT my girlfriend. i have a irl girlfriend. 
+────୨ৎ──── > your very much likely viewing this github from my dear and lovely friend, seawatt / zam . no seawatt is NOT my girlfriend. i have a irl girlfriend. 
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ ⤷ ゛ ˎˊ˗ my introduction may be difficult to read, i apologize. i have not decorated my readme in awhile.
 
@@ -13,7 +13,7 @@
 
 I am neurodivergent, I am open to say this because i am deadass not scared of some people on a pony game.
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans.
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans. Ive been a fan of Arvid Lindblad since his F4 Days.
 
 𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about max verstappens's wdc titles. he is a driver, not a god. its not the end of the world if max verstappen loses a title.
 
