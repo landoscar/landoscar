@@ -9,15 +9,13 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ ⤷ ゛ ˎˊ˗ my introduction may be difficult to read, i apologize. i have not decorated my readme in awhile.
 
 
-ᡕᠵデᡁ᠊╾━ - - i prefer to go by anastasia or oscar, your choice whether to call me one or the other. i am not a kin of oscar piastri or a shifter.
+ᡕᠵデᡁ᠊╾━ - - i prefer to go by anastasia or oscar / arvid, your choice whether to call me one or the other. i am not a kin of oscar piastri. I am not a kin of Arvid Lindblad or Liam Lawson Either. I am not a shifter.
 
 I am neurodivergent, I am open to say this because i am deadass not scared of some people on a pony game.
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans. Ive been a fan of Arvid Lindblad since his F4 Days.
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ > yes , i am a female formula one fan. its not a suprise. ive been a fan of oscar piastri since his formula renault days, and will still continue to be a fan of him. do not interact with me if your toxic towards female f1 fans. Ive been a fan of Arvid Lindblad since his F4 Days. Recently became a fan of Liam Lawson.
 
 𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about max verstappens's wdc titles. he is a driver, not a god. its not the end of the world if max verstappen loses a title.
-
-YES, i am a lando norris fan. does this mean ill go out of my way to harass and send death threats to other f1 fans and fangirl over him? NO. Nor do i support his actions supporting trump. I simply like him because of his driving.
 
 ---> my pc is broken so you wont be seeing me on ponytown until i get a new one.
 
