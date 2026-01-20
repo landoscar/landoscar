@@ -17,8 +17,6 @@ I am neurodivergent, I am open to say this because i am deadass not scared of so
 
 𓊆ྀི❤︎𓊇ྀི > i do NOT give two shits about max verstappens's wdc titles. he is a driver, not a god. its not the end of the world if max verstappen loses a title.
 
----> my pc is broken so you wont be seeing me on ponytown until i get a new one.
-
                             BOUNDARIES
 
 
