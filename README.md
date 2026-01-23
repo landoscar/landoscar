@@ -9,7 +9,7 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ ⤷ ゛ ˎˊ˗ my introduction may be difficult to read, i apologize. i have not decorated my readme in awhile.
 
 
-ᡕᠵデᡁ᠊╾━ - - i prefer to go by anastasia or oscar / arvid, your choice whether to call me one or the other. i am not a kin of oscar piastri. I am not a kin of Arvid Lindblad or Liam Lawson Either. I am not a shifter.
+ᡕᠵデᡁ᠊╾━ - - i prefer to go by vixen or oscar / arvid, your choice whether to call me one or the other. i am not a kin of oscar piastri. I am not a kin of Arvid Lindblad or Liam Lawson Either. I am not a shifter.
 
 I am neurodivergent, I am open to say this because i am deadass not scared of some people on a pony game.
 
@@ -39,6 +39,8 @@ other basic boundaries aswell
                         FANDOMS IM IN
 
 ˚˖𓍢ִ໋🦢˚ > Formula One Heineken Racing
+
+˚˖𓍢ִ໋🦢˚ > Transformers ( Live Movies )
 
 ˚˖𓍢ִ໋🦢˚ > Avatar ( Avatar, Avatar: The Way Of Water, Avatar: Fire And Ash. )
 
