@@ -1,5 +1,5 @@
+<img width="735" height="1040" alt="F1 Poster" src="https://github.com/user-attachments/assets/3410f148-d39c-4bcf-8fbd-f64abb268f99" />
 
-<img width="736" height="920" alt="arvid lindblad poster" src="https://github.com/user-attachments/assets/e008f1e5-528b-46e3-9ad3-d9248fc4e30f" />
 
 
 
